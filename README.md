@@ -1,2 +1,2 @@
 # Graphic-Design
-Here is all my graphic design work
+Besides being enthusiastic about coding, I also love graphic design. I am proficient at Photoshop, Illustrator and InDesign. 
